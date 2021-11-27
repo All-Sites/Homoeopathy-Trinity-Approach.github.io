@@ -1,0 +1,1 @@
+# Homoeopathy-Trinity-Approach
